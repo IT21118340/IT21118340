@@ -1,3 +1,3 @@
-Github Username - IT21118340
+GitHub Username - IT21118340
 
 Registration Number - IT21118340
